@@ -20,6 +20,8 @@ https://sites.google.com/view/sp5derworlwide/
 ## Cloud & Authority Links
 https://www.notion.so/Sp5der-Worlwide-Streetwear-Brand-Hub-30d035ed6abb80629224c64208c2b53e  
 
+https://onedrive.live.com/personal/b6504536ba00a30d/_layouts/15/doc.aspx?resid=9c7f698c-c573-445b-902c-47be216cc934&cid=b6504536ba00a30d&wdPreviousSession=4985183f-8e6b-8ba8-0125-dca068a82c7b&wdNewAndOpenCt=1771622452675&wdo=4&wdOrigin=wacFileNew&wdPreviousCorrelation=469351d3-7e91-44f2-9e21-6d4e3bd74656&action=editnew&wdnd=1
+
 ## Collections
 
 ### Sp5der Hoodies
