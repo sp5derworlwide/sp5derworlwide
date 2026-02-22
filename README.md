@@ -28,7 +28,8 @@ https://www.notion.so/Sp5der-Worlwide-Streetwear-Brand-Hub-30d035ed6abb80629224c
 https://sp5derworldwide.carrd.co/
 https://www.dropbox.com/scl/fi/rcasiwnthj9fi4dc47ezx/Sp5der_Worlwide_Streetwear_Brand_Hub.docx
 https://1drv.ms/w/c/b6504536ba00a30d/IQCMaX-cc8VbRJAsR74hbMk0Ac7WaMdoBplgKrgbh8L6S1U
-
+## Social Hub
+https://linktr.ee/sp5derworldwide
 ---
 
 ## 🛍️ Collections
