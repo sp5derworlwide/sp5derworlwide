@@ -1,33 +1,37 @@
 # Sp5der Worlwide — Streetwear Brand Hub
 
-Sp5der Worlwide is an international streetwear platform specializing in hoodies, tracksuits, and modern urban fashion collections.
+Sp5der Worlwide is an international streetwear platform specializing in hoodies, tracksuits, and modern urban fashion collections inspired by contemporary street culture.
 
-## Official Website
+---
+
+## 🌐 Official Website
 https://sp5derworlwide.com/
 
-## Brand Profiles
-https://about.me/sp5derworlwide  
-https://www.pinterest.com/sp5derworlwide/  
+---
 
-## Content Platforms
-https://medium.com/@sp5derworldwide  
-https://sp5derworlwide.wordpress.com/  
-https://sp5derworlwide.blogspot.com/  
+## 🧭 Brand Hub & Profiles
+https://sites.google.com/view/sp5derworlwide/
+https://about.me/sp5derworlwide
+https://www.pinterest.com/sp5derworlwide/
 
-## Google Brand Hub
-https://sites.google.com/view/sp5derworlwide/  
+---
 
-## Cloud & Authority Links
-https://www.notion.so/Sp5der-Worlwide-Streetwear-Brand-Hub-30d035ed6abb80629224c64208c2b53e  
+## ✍️ Content Platforms
+https://medium.com/@sp5derworldwide
+https://sp5derworlwide.wordpress.com/
+https://sp5derworlwide.blogspot.com/
 
-https://onedrive.live.com/personal/b6504536ba00a30d/_layouts/15/doc.aspx?resid=9c7f698c-c573-445b-902c-47be216cc934&cid=b6504536ba00a30d&wdPreviousSession=4985183f-8e6b-8ba8-0125-dca068a82c7b&wdNewAndOpenCt=1771622452675&wdo=4&wdOrigin=wacFileNew&wdPreviousCorrelation=469351d3-7e91-44f2-9e21-6d4e3bd74656&action=editnew&wdnd=1
+---
 
-https://www.dropbox.com/scl/fi/rcasiwnthj9fi4dc47ezx/Sp5der_Worlwide_Streetwear_Brand_Hub.docx?rlkey=f3i2ppgdqdztg0vwhnkc8164t&st=24dnonin&dl=0
-**Carrd Page:**
+## ☁️ Cloud & Authority Assets
+https://www.notion.so/Sp5der-Worlwide-Streetwear-Brand-Hub-30d035ed6abb80629224c64208c2b53e
 https://sp5derworldwide.carrd.co/
+https://www.dropbox.com/scl/fi/rcasiwnthj9fi4dc47ezx/Sp5der_Worlwide_Streetwear_Brand_Hub.docx
+https://1drv.ms/w/c/b6504536ba00a30d/IQCMaX-cc8VbRJAsR74hbMk0Ac7WaMdoBplgKrgbh8L6S1U
 
+---
 
-## Collections
+## 🛍️ Collections
 
 ### Sp5der Hoodies
 https://sp5derworlwide.com/product-category/sp5der-hoodie/
@@ -37,4 +41,4 @@ https://sp5derworlwide.com/product-category/sp5der-tracksuit/
 
 ---
 
-Sp5der Worlwide documents modern streetwear culture, trending apparel drops, and urban fashion essentials worldwide.
+Sp5der Worlwide documents modern streetwear trends, apparel drops, and urban fashion inspiration worldwide.
