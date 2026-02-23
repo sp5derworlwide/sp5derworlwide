@@ -41,5 +41,7 @@ https://sp5derworlwide.com/product-category/sp5der-hoodie/
 https://sp5derworlwide.com/product-category/sp5der-tracksuit/
 
 ---
+**Author Profile:**
+https://gravatar.com/sp5derworlwide
 
 Sp5der Worlwide documents modern streetwear trends, apparel drops, and urban fashion inspiration worldwide.
