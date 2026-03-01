@@ -54,3 +54,5 @@ https://www.behance.net/gallery/244770503/Sp5der-Worldwide-Modern-Streetwear-Col
 https://www.quora.com/profile/Young-Thug-311
 ## Latest Articles
 https://medium.com/@sp5derworldwide/how-sp5der-tracksuits-became-a-streetwear-essential-worldwide-6c5a4320c36e
+https://www.tumblr.com/sp5derworlwide/809925438616043520/sp5der-streetwear-hoodies-tracksuits-urban
+
