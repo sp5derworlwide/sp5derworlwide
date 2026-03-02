@@ -58,4 +58,5 @@ https://www.tumblr.com/sp5derworlwide/809925438616043520/sp5der-streetwear-hoodi
 
 **sp5der Worldwide Article**
 https://medium.com/@sp5derworldwide/how-sp5der-hoodies-and-tracksuits-define-modern-streetwear-culture-eae503bdea06
+https://vocal.media/stories/why-sp5der-streetwear-is-gaining-global-popularity
 
