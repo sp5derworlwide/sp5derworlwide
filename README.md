@@ -55,4 +55,6 @@ https://www.quora.com/profile/Young-Thug-311
 ## Latest Articles
 https://medium.com/@sp5derworldwide/how-sp5der-tracksuits-became-a-streetwear-essential-worldwide-6c5a4320c36e
 https://www.tumblr.com/sp5derworlwide/809925438616043520/sp5der-streetwear-hoodies-tracksuits-urban
+**sp5der Worldwide Article **
+https://medium.com/@sp5derworldwide/how-sp5der-hoodies-and-tracksuits-define-modern-streetwear-culture-eae503bdea06
 
