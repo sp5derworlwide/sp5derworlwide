@@ -65,3 +65,5 @@ https://sp5derworldwide1.substack.com/p/the-evolution-of-modern-streetwear
 **BSKY Streetwear Journal**
 
 https://bsky.app/profile/sp5der89.bsky.social
+**solo streetwear journal**
+https://solo.to/sp5derworldwide
